@@ -6,7 +6,7 @@
 
 ![mkot](mkot.png)
 
-** these kitties grown up too fast **
+**these kitties grown up too fast**
 
 ![kot](kot.png)
 
